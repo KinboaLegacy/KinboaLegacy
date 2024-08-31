@@ -1,8 +1,5 @@
-Windows BROL is a version of windows 10 created by me with the purpose of adding programs and applications, leaving the iso light.
+hi guys, i am kinboa9009(my nick on psn/bf4)
 
-if anyone wants to give me ideas to add in Windows BROL, contact my email.
+i am a bf4 normal player, i am from brazil lol, im am a brazilian programmer lollolollolo, 
 
-email:rush.contact.661@gmail.com
-
-
-this is open source(for brazucaskk)
+I'm a kid who usually has fun with VMs, Isos modifications and games, I usually play bf4 until nightfall on ps3
